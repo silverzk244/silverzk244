@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @silverzk244
+- 👀 gosto de jogar bola cortar cabelo    
+- quero ir prro  exécito
+- trabalhar de enjenheiro 
+- se exforcando    
+- 📫 How to reach me ... 
